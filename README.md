@@ -3,4 +3,4 @@
 * **Pass my stats220**
 * *Hopefully get an A*
 
-![Try this link for fun](https://media.tenor.com/5aE5T7edBz4AAAAM/the-simpsons-homer-simpson.gif)
+[https://media.tenor.com/5aE5T7edBz4AAAAM/the-simpsons-homer-simpson.gif]
